@@ -1,1 +1,1 @@
-# saif thanks for using my calculator
+# Thanks for using my calculator
